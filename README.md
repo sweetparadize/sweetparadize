@@ -14,7 +14,7 @@ Omnisexual . demigirl . demisexual !
 
 -- Please do NOT copy my skins , inspo is fine just make sure you ask( NO HEAVY INSPO THOUGH)
 
-usually in cosplays or my ocs. Im seen with my trusted oomfs around the freak circus area , project moon area , eddsworld area (i dont go there alone i only go with oomfs , or sometimes (rarely) in the bakery. Please note that i am sometimes offtab or busy . W2i is heavily recomended but chances are you will get a late response from me , sorry ( ;´ - `;) . . . .
+usually in cosplays or my ocs. Im seen with my trusted oomfs around the freak circus area , project moon area , homestuck area, eddsworld area (i dont go there alone i only go with oomfs , or sometimes (rarely) in the bakery. Please note that i am sometimes offtab or busy . W2i is heavily recomended but chances are you will get a late response from me , sorry ( ;´ - `;) . . . .
 
 <img src="https://i.namu.wiki/i/VmJE-cqiqelXfsLjJBABn3yrkSa3GmvfQHwwkUsn8-TNhntvWHLNrRdpnc8NOnrdX-WQg2W-hczZYwpeLN_Ywg.gif" alt="Sua (Alien Stage) - NamuWiki"/>
 
