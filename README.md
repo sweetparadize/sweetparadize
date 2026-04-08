@@ -26,7 +26,7 @@ BYI (╥_╥) : I tell kms/kys jokes however i will never mean it literally, swe
 
 °⑅
 
-DNI ( ` ᴖ ´ ) : under 12 + over 20 (this isnt really a dni more of a thin ice , if interacted please do so with care.) , homophobic , transphobic , racist , pedos ; pro/dark/comshippers , support problematic creators/content , people who make their whole personality abt their mental disorder , mappride ppl (ew) , people who break boundaries for no reason and real life gore enjoyers.
+DNI ( ` ᴖ ´ ) : under 12 + over 20 (this isnt really a dni more of a thin ice , if interacted please do so with care.) , homophobic , transphobic , racist , pedos ; pro/dark/comshippers , support problematic creators/content , people who make their whole personality abt their mental disorder , mappride ppl (ew) , people who break boundaries for no reason and real life gore enjoyers and.. people named rue (this one is a joke pls dont kill me)
 
 thats all . bye 
 
