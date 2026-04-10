@@ -1,4 +1,4 @@
- important: currently failing classes and struggling with mental health will be quitting pony town.
+ important: currently failing classes and struggling with mental health will be quitting pony town soon.
  
 <img src="https://64.media.tumblr.com/af7b64f21fd40a6fbf4542241df16c2a/dbd69b5b9ae1649f-a3/s640x960/2d21e8edb39ab851052ec088150aacc7a32af6f2.gif" alt="MIZISUA - ALIEN STAGE – @faterevue on Tumblr"/><img width="600" height="338" alt="image" src="https://github.com/user-attachments/assets/4a97a575-726b-4add-a294-4d9232e2e41e" />
 
