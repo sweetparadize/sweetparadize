@@ -1,32 +1,34 @@
- important: currently failing classes and struggling with mental health will be quitting pony town soon.
- 
-<img src="https://64.media.tumblr.com/af7b64f21fd40a6fbf4542241df16c2a/dbd69b5b9ae1649f-a3/s640x960/2d21e8edb39ab851052ec088150aacc7a32af6f2.gif" alt="MIZISUA - ALIEN STAGE – @faterevue on Tumblr"/><img width="600" height="338" alt="image" src="https://github.com/user-attachments/assets/4a97a575-726b-4add-a294-4d9232e2e41e" />
+Beware . active Solrynism follower.
 
-call me : Ritzy , ritz , or columbina! ♡ ( any prns . . . sixteen ! (,,>ヮ<,,) #missinghim
+<img src="https://cdn.pfps.gg/banners/7918-angel.png" alt="Angel Discord Banner"/>
+
+call me : Ritzy , ritz , molly  or columbina! ( any prns . . . sixteen ! 
 
 Omnisexual . demigirl . demisexual !
 
 (..◜ᴗ◝..) . . . multifandom! IMPORTANT : some of the media i like contains dark content, however I do not condone, excuse, or support any of these behaviors in reality.
 
--- c+h is not always enc (will be stated when not) this is moslty if i am upset or either tired or just busy, c+h is moslty enc and will be stated also, mostly when im in a good mood . any c+h is fine just please do not fully cover my pony UNLESS you are a close friend! ( ˊᵕˋ )
+-- c+h is okay, however when i have "dniuf" or "dni" it is highly recommended not to. please do not cover me fully unless you are a close friend like rue, vincent , mal or bucky. ( ˊᵕˋ )
 
 °⑅
 
--- Please do NOT copy my skins , inspo is fine just make sure you ask( NO HEAVY INSPO THOUGH)
+-- Please do NOT copy my skins i take my time into them all , inspo is fine just make sure you ask me ( NO HEAVY INSPO THOUGH)
 
 usually in cosplays or my ocs. Im seen with my trusted oomfs around the freak circus area , project moon area , homestuck area, eddsworld area (i dont go there alone i only go with oomfs , or sometimes (rarely) in the bakery. Please note that i am sometimes offtab or busy . W2i is heavily recomended but chances are you will get a late response from me , sorry ( ;´ - `;) . . . .
 
-<img src="https://i.namu.wiki/i/VmJE-cqiqelXfsLjJBABn3yrkSa3GmvfQHwwkUsn8-TNhntvWHLNrRdpnc8NOnrdX-WQg2W-hczZYwpeLN_Ywg.gif" alt="Sua (Alien Stage) - NamuWiki"/>
+important: i mostly do not interact with anyone else besides my friends in the freak circus fandom, this is moslty based on how we have been harassed before.
+
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTXAzxpl1M_as8F51iRbK8xaoAyleWN4ZhcuA&amp;s" alt="Angelic Banner Discord"/>
 
 Absolutely horrible at talking to people i dont know and mostly will be dry . Do not flirt with me if you dont know me even if its a joke, im firm about my boundaries and my friends and breaking them will result in you getting blocked or hidden lol
 
 °⑅
 
-BYI (╥_╥) : I tell kms/kys jokes however i will never mean it literally, swear ( sometimes ) , have massive mood swings that make me sad , mad or even make me anxious to the point i start getting aggressive , Mentally ill/srs , Minor . under 18 in HIGH SCHOOL.
+BYI (╥_╥) : I tell kms/kys jokes however i will never mean it literally, swear ( sometimes ) , have massive mood swings that make me sad , mad or even make me anxious to the point i start getting aggressive , Mentally ill/srs , Minor . under 18 in HIGH SCHOOL , will be taking a MASSIVE break from pony town soon due to really personal reasons i cannot share unless with a close friend.
 
 °⑅
 
-DNI ( ` ᴖ ´ ) : under 12 + over 20 (this isnt really a dni more of a thin ice , if interacted please do so with care.) , homophobic , transphobic , racist , pedos ; pro/dark/comshippers , support problematic creators/content , people who make their whole personality abt their mental disorder , mappride ppl (ew) , people who break boundaries for no reason and real life gore enjoyers and.. people named rue (this one is a joke pls dont kill me)
+DNI ( ` ᴖ ´ ) : under 12 + over 20 (this isnt really a dni more of a thin ice , if interacted please do so with care.) , homophobic , transphobic , racist , pedos ; pro/dark/comshippers , support problematic creators/content , people who make their whole personality abt their mental disorder , mappride ppl (ew) , people who break boundaries for no reason and real life gore enjoyers and.. people named rue (this one is a joke pls dont kill me i love rue #heartemoji)
 
 thats all . bye 
 
