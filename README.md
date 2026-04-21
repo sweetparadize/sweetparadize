@@ -3,7 +3,7 @@
 
 Beware . active Solrynism follower. I say this because it is a "virtuous" offshoot of Spawnism however i do NOT believe in spawnism.I beg you dont insult me.
 
-<img src="https://cdn.pfps.gg/banners/7918-angel.png" alt="Angel Discord Banner"/>
+<img src="https://images.sharefaith.com/images/3/1301673573364_802/img_mouseover3.jpg" alt="Rose Website Banner | Clover Media"/>
 
 call me : Ritzy , ritz , molly  or columbina! ( any prns . . . sixteen ! 
 
@@ -21,7 +21,7 @@ usually in cosplays or my ocs. Im seen with my trusted oomfs around the freak ci
 
 important: i mostly do not interact with anyone else besides my friends in the freak circus fandom, this is moslty based on how we have been harassed before.
 
-<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTXAzxpl1M_as8F51iRbK8xaoAyleWN4ZhcuA&amp;s" alt="Angelic Banner Discord"/>
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTk-SmpbnIB963icYigZhgd0OF65R4QS4wgmg&amp;s" alt="Red Aesthetic Discord Banner"/>
 
 Absolutely horrible at talking to people i dont know but i will try! . Do not flirt with me if you dont know me even if its a joke, im firm about my boundaries and my friends and breaking them will result in you getting blocked or hidden lol
 
@@ -32,6 +32,8 @@ BYI (╥_╥) : I tell kms/kys jokes however i will never mean it literally, swe
 °⑅
 
 DNI ( ` ᴖ ´ ) : under 12 + over 20 (this isnt really a dni more of a thin ice , if interacted please do so with care.) , homophobic , transphobic , racist , pedos ; pro/dark/comshippers , support problematic creators/content , people who make their whole personality abt their mental disorder , mappride ppl (ew) , people who break boundaries for no reason and real life gore enjoyers and.. people named rue (this one is a joke pls dont kill me i love rue #heartemoji)
+
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTaK4RgU7879qritAEUPVMs0PIyRAQKyQpgSw&amp;s" alt="Roblox Realm - Art, videos, guides, polls and more - Game Jolt"/>
 
 thats all . bye 
 
