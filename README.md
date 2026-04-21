@@ -1,3 +1,6 @@
+ > [!NOTE]
+>  You can vent to me even if we dont know eachother that much. As a Solrynist i try to help myself and others no matter what the situatuion might be just please remind me of what kind of topic we are talking about so i can prepare. However people like Rue , Vincent , Mal , Bucky and livi do not need to follow this rule.
+
 Beware . active Solrynism follower.
 
 <img src="https://cdn.pfps.gg/banners/7918-angel.png" alt="Angel Discord Banner"/>
@@ -20,11 +23,11 @@ important: i mostly do not interact with anyone else besides my friends in the f
 
 <img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTXAzxpl1M_as8F51iRbK8xaoAyleWN4ZhcuA&amp;s" alt="Angelic Banner Discord"/>
 
-Absolutely horrible at talking to people i dont know and mostly will be dry . Do not flirt with me if you dont know me even if its a joke, im firm about my boundaries and my friends and breaking them will result in you getting blocked or hidden lol
+Absolutely horrible at talking to people i dont know but i will try! . Do not flirt with me if you dont know me even if its a joke, im firm about my boundaries and my friends and breaking them will result in you getting blocked or hidden lol
 
 °⑅
 
-BYI (╥_╥) : I tell kms/kys jokes however i will never mean it literally, swear ( sometimes ) , have massive mood swings that make me sad , mad or even make me anxious to the point i start getting aggressive , Mentally ill/srs , Minor . under 18 in HIGH SCHOOL , will be taking a MASSIVE break from pony town soon due to really personal reasons i cannot share unless with a close friend.
+BYI (╥_╥) : I tell kms/kys jokes however i will never mean it literally, swear ( sometimes ) , have massive mood swings that make me sad , mad or even make me anxious to the point i start getting aggressive , Mentally ill/srs , Minor . under 18 in HIGH SCHOOL , will be taking a MASSIVE break from pony town soon due to really personal reasons i cannot share unless with a close friend. please note that i have mental disorders that make me like this
 
 °⑅
 
