@@ -1,7 +1,7 @@
  > [!NOTE]
 >  You can vent to me even if we dont know eachother that much. As a Solrynist i try to help myself and others no matter what the situatuion might be just please remind me of what kind of topic we are talking about so i can prepare. However people like Rue , Vincent , Mal , Bucky and livi do not need to follow this rule.
 
-Beware . active Solrynism follower.
+Beware . active Solrynism follower. I say this because it is a "virtuous" offshoot of Spawnism however i do NOT believe in spawnism.I beg you dont insult me.
 
 <img src="https://cdn.pfps.gg/banners/7918-angel.png" alt="Angel Discord Banner"/>
 
