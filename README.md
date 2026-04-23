@@ -1,6 +1,6 @@
  > [!NOTE]
->  You can vent to me even if we dont know eachother that much. As a Solrynist i try to help myself and others no matter what the situatuion might be just please remind me of what kind of topic we are talking about so i can prepare. However people like Rue , Vincent , Mal , Bucky and livi do not need to follow this rule.
-
+currently in a unstable mental state int with caution . 
+> 
 Beware . active Solrynism follower. I say this because it is a "virtuous" offshoot of Spawnism however i do NOT believe in spawnism.I beg you dont insult me.
 
 <img src="https://images.sharefaith.com/images/3/1301673573364_802/img_mouseover3.jpg" alt="Rose Website Banner | Clover Media"/>
