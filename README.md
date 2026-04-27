@@ -11,8 +11,8 @@
                                       - ------------------✩-------------------- - 
                                        
                                          Solrynist . hide if do not want to int.
-                                    Ritzy , Ritz , molly or columbina . any prns . 16
-                                        13 and under dni . 20 and over thin ice   
+                                    Ritzy , Ritz , molly or columbina . any prns . 
+                                                  13 and under dni
                                         
                                       - ------------------✩-------------------- - 
                                       
