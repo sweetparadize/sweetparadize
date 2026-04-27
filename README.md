@@ -6,10 +6,15 @@
 
 
 
-" ʟᴏᴏᴋ ᴅᴀʀʟɪɴɢ ʜᴏᴡ ᴍᴜᴄʜ ɪ ᴍɪss ʏᴏᴜ " 
+                                          " ʟᴏᴏᴋ ᴅᴀʀʟɪɴɢ ʜᴏᴡ ᴍᴜᴄʜ ɪ ᴍɪss ʏᴏᴜ " 
 
+                                      - ------------------✩-------------------- - 
                                        
-
                                          Solrynist . hide if do not want to int.
                                     Ritzy , Ritz , molly or columbina . any prns . 16
+                                        13 and under dni . 20 and over thin ice   
+                                        
+                                      - ------------------✩-------------------- - 
+                                      
+   <img src="https://64.media.tumblr.com/eb5c8d972b068ebc0240833d8bd575a0/d099d6983e467e02-58/s2048x3072/e85f5c7de439b1de16e20e82038fe326918fdb32.jpg" alt="Baby Blue Discord Banner"/>
                                    
