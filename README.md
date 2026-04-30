@@ -11,7 +11,7 @@
                                       - ------------------✩-------------------- - 
                                        
                                          Solrynist . hide if do not want to int.
-                                    Ritzy , Ritz , molly or columbina . any prns . 6teen
+                                    Ritzy , Ritz , molly or columbina . any prns . 
                                                   13 and under dni
                                         
                                       - ------------------✩-------------------- - 
