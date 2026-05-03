@@ -1,5 +1,4 @@
-> [!NOTE]
-> Will be more busy than expeceted. 
+
 
    <img src="https://i.pinimg.com/originals/ea/e2/98/eae298ad21bf31979832b1dec9192491.gif" alt="43 Hình gif anime ý tưởng | hình gif, anime, ảnh gif"/>
 
