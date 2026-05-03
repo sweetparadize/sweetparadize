@@ -9,8 +9,9 @@
 
                                       - ------------------✩-------------------- - 
                                        
-                                         Solrynist . hide if do not want to int.
-                                    Ritzy , Ritz , molly or columbina . any prns . 
+                                        Solrynist . hide if do not want to int.
+                                     Ritzy , Ritz , molly or columbina . any prns . 
+                                 if your not one of my comf ppl dont cover me fully
                                                   13 and under dni
                                         
                                       - ------------------✩-------------------- - 
