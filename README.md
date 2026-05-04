@@ -12,7 +12,7 @@
                                          Solrynist . hide if do not want to int.
                                       Ritzy , Ritz , molly or columbina . any prns . 
                                     if your not one of my comf ppl dont cover me fully
-                                  mute changelings strict dni srry dont want to deal with them
+                              mute changelings strict dni srry dont want to deal with them
                                                    13 and under dni
                                         
                                       - ------------------✩-------------------- - 
