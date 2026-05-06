@@ -1,9 +1,9 @@
 > [!NOTE]
 > currently wont be active as much or at all due to personal reasons only my close friends know
 > 
-> Happy birthday rue!!! ily soomuch!
+> Happy birthday rue!!! ily soomuch! my birthday cake for rue ↓
 
-   <img src="https://i.pinimg.com/originals/ea/e2/98/eae298ad21bf31979832b1dec9192491.gif" alt="43 Hình gif anime ý tưởng | hình gif, anime, ảnh gif"/>
+ <img src="https://down-ph.img.susercontent.com/file/sg-11134201-7repd-m1zbh725chz4c3" alt="3D Chiikawa birthday cake decoration cartoon Usachi Hachiji soft rubber  children&#39;s birthday cake ornament | Shopee Philippines"/>
 
 
 
