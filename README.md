@@ -1,10 +1,8 @@
 > [!NOTE]
 > currently wont be active as much or at all due to personal reasons only my close friends know
-> 
-> Happy birthday rue!!! ily soomuch! my birthday cake for rue ↓
 
- <img src="https://down-ph.img.susercontent.com/file/sg-11134201-7repd-m1zbh725chz4c3" alt="3D Chiikawa birthday cake decoration cartoon Usachi Hachiji soft rubber  children&#39;s birthday cake ornament | Shopee Philippines"/>
 
+<img src="https://r2.chiikawawallpaper.com/wallpaper/wallpaper/4k/e29eb665403969dc92cf6aeb142490c0-400.jpg" alt="Chiikawa Desktop/PC/Laptop Wallpaper Free Download - Chiikawa Wallpaper"/>
 
 
 
@@ -16,7 +14,7 @@
                                       Ritzy , Ritz , molly or columbina . any prns . 
                                     if your not one of my comf ppl dont cover me fully
                               mute changelings strict dni srry dont want to deal with them
-                                             diagnosed schizophernia + bpd
+                                        diagnosed schizophernia + depression + bpd
                                                     13 and under dni
                                         
                                       - ------------------✩-------------------- - 
