@@ -3,7 +3,6 @@
 
 <img src="https://i.pinimg.com/474x/2a/69/55/2a6955041c456726fb9e6abd58baad13.jpg" alt="Body Banners Discord"/><p align="center"> <br><br><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Courier+Prime&weight=500&size=15&duration=3400&pause=800&color=CA1C1C&center=true&width=443&height=20&lines=What+do+I+know+about+love%3F;How+can+I+recreate+what+I've+never+had%3F;All+that+I+know+is+that+I+must+keep+you+thriving;If+nutrients+are+what+you+lack;I+will+water+you+with+every+drop+of+blood+I+have;But+now+I+know+that;Sacrifice+is+the+easy+path;My+absence+cannot+ever+change+the+fact;I+wanted+the+very+best+for+you%2C+believe+me;Our+threads+in+red+can+never+be+cut;And+S+is+not+for+sayonara;Will+you+forgive+me+at+last%3F" alt="Typing SVG" /></a>    
 <p align="center"> " im slowly forgetting your face."
-<p align="center"> - ------------------✩-------------------- - 
 <p align="center"> solyrist . hide if do not want to int.
 <p align="center"> Ritzy , Ritz , molly or columbina . any prns . 
 <p align="center">if your not one of my comf ppl dont cover me fully
