@@ -18,6 +18,11 @@
 <p align="center"> <img width="299" height="38" alt="IMG_2356" src="https://github.com/user-attachments/assets/b6bb3dfc-94cc-4693-8da9-7f7cf67316dc" />
   <p align="center"> ᴅɪᴀɢɴᴏsᴇᴅ ᴅᴇᴘʀᴇssɪᴏɴ, ʙᴘᴅ, ᴀɴᴅ sᴄʜɪᴢᴏᴘʜʀᴇɴɪᴀ! ɪᴡᴇᴄ ᴀʟᴡᴀʏs ᴘʟᴇᴀsᴇ!
     <p align="center"> <img width="110" height="90" alt="IMG_2359" src="https://github.com/user-attachments/assets/ba45661b-c2f9-44e3-8932-9fae0bee2dae" /><img width="110" height="90" alt="IMG_2360" src="https://github.com/user-attachments/assets/f8d4c6f9-2d97-4af3-b161-6273e7a8c0b9" />
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31362fp26neqb4yvgdepsw3ivpsi&cover_image=true&theme=novatorem&show_offline=false&background_color=ffdcff&interchange=true&profanity=false&hide_remaster=false&bar_color=ffbeee&bar_color_cover=false">
+  </a>
+</p>
 
 
 
