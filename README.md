@@ -4,10 +4,10 @@
 
 <p align="center"> 💭.｡:･*ﾟ💫ﾟ*･.｡
   
-<p align="center">" ᴛᴀᴋᴇ sᴏᴍᴇ ᴏғ ᴛʜɪs ɪᴛ'ʟʟ ᴄᴀʟᴍ ʏᴏᴜ ᴅᴏᴡɴ " 
+<p align="center">" ᴛᴀᴋᴇ ɪᴛ sʟᴏᴡ.. ᴛᴀᴋᴇ ɪᴛ ᴇᴀsʏ ᴏɴ ᴍᴇ.. "
 <p align="center"> ʜᴇʏ ʏᴏᴜ ᴄᴀɴ ᴄᴀʟʟ ᴍᴇ ʀɪᴛᴢʏ ᴏʀ ɪ ᴀʟsᴏ ɢᴏ ʙʏ ᴀs ᴍᴏʟʟʏ ᴏʀ ʀɪᴛᴢ! 
 ( ᐢ ᵕ ᐢ ) 
-  ʏᴏᴜ ᴄᴀɴ ғɪɴᴅ ᴍᴇ ᴍᴏsᴛʟʏ ᴏɴ ᴅᴏᴄᴋs sɪᴛᴛɪɴɢ ᴡɪᴛʜ ᴍʏ ғʀɪᴇɴᴅs ᴢᴜʟ + ʟɪᴀ ᴏʀ ᴊʙ! ᴀɴᴅ sᴏᴍᴇᴛɪᴍᴇs ᴏᴄᴄᴀsɪᴏɴᴀʟʟʏ ᴡɪᴛʜ ᴍʏ ʙᴇsᴛɪᴇ </3
+  ʏᴏᴜ ᴄᴀɴ ғɪɴᴅ ᴍᴇ ᴍᴏsᴛʟʏ ᴏɴ ᴅᴏᴄᴋs sɪᴛᴛɪɴɢ ᴡɪᴛʜ ᴍʏ ғʀɪᴇɴᴅs ᴢᴜʟ + ʟɪᴀ ᴀɴᴅ sᴏᴍᴇᴛɪᴍᴇs ᴏᴄᴄᴀsɪᴏɴᴀʟʟʏ ᴡɪᴛʜ ᴍʏ ᴡɪғᴇ, ʟɪᴢᴢʏ  </3
   
   <p align="center"> <img width="110" height="90" alt="IMG_2357" src="https://github.com/user-attachments/assets/f1c97e7b-6a1f-4e43-be10-354b58be2064" /><img width="110" height="90" alt="IMG_2358" src="https://github.com/user-attachments/assets/db113025-b788-4948-b909-3c282ddc00d8" />
 
